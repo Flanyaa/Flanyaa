@@ -3,7 +3,7 @@
 
 Hi ya!! :3
 
-• U can call me Du le, Yuu,...etc (I have too many cute nicknames), Enfp
+• U can call me Du, Yuu,...etc (I have too many cute nicknames), Enfp
 
 • I'm interested in Yttd, Mgrp, Gi, Kaito Joker, Magi, etc!! :D
 
